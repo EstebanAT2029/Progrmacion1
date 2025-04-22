@@ -1,3 +1,3 @@
-# MI Primer Prgrama
-## Esteban Apaza Tciona
-## CEl. 980874152
+# MI Primer Programa
+## Esteban Apaza Ticona
+## Cel. 980874152
